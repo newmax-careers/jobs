@@ -15,10 +15,10 @@ Newmax Technologies - одна из немногих, если не единст
 3) Инновационная система управления персоналом, учета рабочего времени и контроля доступа - BioTrack 
 Наша компания была организована в 2006 году.
 Наши продукты:
-www.uznewmax.com
-www.maxtrack.uz
-www.ibiotrack.com
-www.ibiotrack.ru
+-www.uznewmax.com
+-www.maxtrack.uz
+-www.ibiotrack.com
+-www.ibiotrack.ru
 
 - профессиональная команда
 - интересные проекты
